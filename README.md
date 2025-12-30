@@ -39,7 +39,7 @@ A heartfelt thanks to our amazing instructor **Arwa Ashraf** for her continuous 
 - Dina Kamal 
 - Youssf Litef  
 - Mohamed Moaen  
-- Mohamed Osman  
+- Mohamed Othman  
 
 
 ---
